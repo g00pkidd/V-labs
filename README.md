@@ -13,10 +13,6 @@ Descomprime el archivo, abre la carpeta, entra en la carpeta «math», luego en 
 
 
 
-Upcoming games/series
-Retro games week 1 includes: super Mario 64, punch out, and more.
-Flash games week 1: Duck life 4, and Run 3.
-Daily games: have not yet announced.
 
 
 
