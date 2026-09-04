@@ -6,6 +6,9 @@ steps to play games.
 
 unzip file, then click on the folder, click on the math folder, click on math pages, then on math 23, and then click a game you like to play, then click on the google chrome icon and then enjoy the game!
 
+Monthly Games updated each month!
+juegos mensuales actualizados cada mes!
+
 
 Pasos para jugar:
 
